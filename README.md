@@ -19,7 +19,7 @@
 ---
 
 ### 📫 Let's connect!
-[LinkedIn](https://linkedin.com/in/rana-sofi) • [Email](mailto:rana.sofi.contact@gmail.com)
+[LinkedIn](https://linkedin.com/in/rana-sofi) • [Email](mailto:ranasofi987@gmail.com)
 
 ---
 <p align="right">
